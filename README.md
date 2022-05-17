@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @anafbrtzz
+- 👀 I’m interested in recruting
+- 🌱 I’m currently learning psychology
+- 💞️ I’m looking to collaborate on outsoursing / hunting
+- 📫 How to reach me anafbrtzz@gmail.com
